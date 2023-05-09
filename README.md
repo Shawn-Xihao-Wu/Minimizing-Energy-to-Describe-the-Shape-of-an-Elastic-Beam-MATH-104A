@@ -1,0 +1,1 @@
+# Minimizing-Energy-to-Describe-the-Shape-of-an-Elastic-Beam-Math-104A
